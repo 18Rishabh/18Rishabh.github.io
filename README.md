@@ -1,8 +1,9 @@
 #Welcome 
+                 >Honesty is the best policy!!
 
 ![Rishabh](https://i.ytimg.com/vi/DmCDhWGsZLk/hqdefault.jpg)
+
 #M.tech in Computer Science Engineering at IIT Jammu
->Honesty is the best policy!!
 
 ###My SocialMedia Links
 
