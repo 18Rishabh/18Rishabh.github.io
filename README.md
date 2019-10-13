@@ -1,6 +1,6 @@
 Welcome 
 
-                 |Honesty is the best policy!!
+                 *Honesty is the best policy!!*
 
 ![Rishabh](https://i.ytimg.com/vi/DmCDhWGsZLk/hqdefault.jpg)
 
